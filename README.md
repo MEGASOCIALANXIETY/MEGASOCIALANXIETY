@@ -1,0 +1,4 @@
+- HI! my frieds call me clown or clownie
+- i like a bunch of random stuffs!
+- @Begiur on discord
+- he/they
